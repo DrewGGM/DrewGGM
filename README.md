@@ -17,7 +17,7 @@
 ## 🌐 Encuéntrame en:
 - [💼 LinkedIn](https://www.linkedin.com/in/andrew-garcia-mosquera-279991237)  
 - [🐙 GitHub](https://github.com/DrewGGM)  
-- 📧 andrewgarciamosquera@gmail.com  
+- 📧 contact@andrewgarcia.dev  
 
 ---
 
